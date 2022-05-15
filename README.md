@@ -60,7 +60,7 @@
 - 分手前對女方說「有喜歡但沒有到愛」，卻沒實質行動。掛一個禮拜，再說一次才提分手<br/>
 - 分手後卻自爆「對另一半有理想的個性」「當朋友的感覺比較好」「交往後個性反差太大」<br/>
 - 男方剛分手後有主動提出語音然後道歉，然後賴講的是「抱抱你」「不會啦你可愛穿什麼都好」<br/>
-<img src="images/point-squid.png" alt="testing" width="200" style="display:inline-block;"/>
+<img src="images/point-squid.jpg" alt="testing" width="200" style="display:inline-block;"/>
 </p>
 
 <p>
@@ -86,8 +86,9 @@
 <br/>
 二十多歲就交過十個女朋友還說自己是宅宅<br/>
 做了兩次別人的小三搶了別人的女朋友還沒覺得很內疚還公開講得很興奮<br/>
-大名鼎鼎的「PUPU院長」
-<a href="https://twitter.com/PuPulive">@PuPulive</a> <a href="https://twitter.com/7PuPuPuPu7">@7PuPuPuPu7</a> 
+大名鼎鼎的「PUPU院長」<br/>
+<a href="https://twitter.com/PuPulive">@PuPulive</a> <br/>
+<a href="https://twitter.com/7PuPuPuPu7">@7PuPuPuPu7</a> 
 <br/>
 「沒有很想跟你開玩笑耶」
 </p>
